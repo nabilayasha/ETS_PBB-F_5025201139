@@ -1,3 +1,2 @@
-Nabila Zakiyah Khansa Machrus/n
-
-5025201139
+<br /> Nama : Nabila Zakiyah Khansa Machrus <br />
+NRP : 5025201139
